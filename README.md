@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OhItsAidan
+- 👀 I love DnD
+- 🌱 I’m currently learning scripting
+- 📫 How to reach me on my email - a1dankhd@gmail.com
+- ⚡ Fun fact: The inventor of Pringles is buried in a Pringle can
